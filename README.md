@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @goposwer
 - 👀 I’m interested in ...62
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...456
 - 💞️ I’m looking to collaborate on ...455
 - 📫 How to reach me ...1bc
 - 😄 Pronouns: ...gdf
