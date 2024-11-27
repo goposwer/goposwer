@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...455
 - 📫 How to reach me ...1bc
 - 😄 Pronouns: ...gdf
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...123
 65ad
 <!---s
 goposwer/goposwer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitH35ub profile.
