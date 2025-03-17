@@ -1,5 +1,5 @@
 cxvvbfd747447xcvcxxvvx- 👋 Hi, I’m @goposwersdfbgfbgg
-- 🌱 I’m currently learning ...456bggbbfg
+- 🌱 I’m currently learning ...456bggbbfgwqewq
 - 💞️ I’m looking to collaborate on ...455sfdsdsfqweewqwer
 - 📫 How to reach me ...1bc54rhtrht8364efwsfhngbfghkj.jkfsfds
 - 😄 Pronouns: ...gdfwer3126551516969ht43545bcvjmbnbbdfgdfsfdsd
