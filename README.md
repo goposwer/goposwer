@@ -3,7 +3,7 @@ mcxvvbfd747447xcvcxxvvx- 👋 Hi, I’m @goposwersdfbgfbg
 - 💞️ I’m looking to collaborate on ...455sfdsdsfqweewqwerre
 - 📫 How to reach me ...1bc54rhtrht8364efwsfhngbfghkj.jkfsfdsghngh
 - 😄 Pronouns: ...gdfwer3126551516969ht43545bcvjmbnbbdfgdfsfdsdasdrewre62
-- ⚡ Fun fact: ...rfdnfdfdfgfbgfrweewhrthtr
+- ⚡ Fun fact: ...rfdnfdfdfgfbgfrweewhrthtrthththt
 65adwersdfafsdfsfddsrexcverggrwercgnvdsddsdefdvxcxrgedx
 <!---sjhmvfrexcvcxvvbgdfgdffdfgerbredfgfdfd
 goposwer/goposwer is a ✨ special ✨ repository because its `README.md` (this file) appears onjyu your GitH35ufhb proredffile.bdffdf
