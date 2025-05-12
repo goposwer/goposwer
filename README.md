@@ -1,7 +1,7 @@
 hmcxvvbfd747447xcvcxxvvx- 👋 Hi, I’m @goposwersdfbgfbg
 - 🌱 I’m currently learning ...456bggbbfgwqewqhngnhnhhgdfdcc
 - 💞️ I’m looking to collaborate on ...455sfdsdsfqweewqwerre
-- 📫 How to reach me ...1bc54rhtrht8364efwsfhngbfghkj.jkfsfdsghnghfghhgf
+- 📫 How to reach me ...1bc54rhtrht8364efwsfhngbfghkj.jkfsfdsghnghfghhgffbcvfdd
 - 😄 Pronouns: ...gdfwer3126551516969ht43545bcvjmbnbbdfgdfsfdsdasdrewre62
 - ⚡ Fun fact: ...rfdnfdfdfgfbgfrweewhrthtrthththtgfhdfdd
 65adwersdfafsdfsfddsrexcverggrwercgnvdsddsdefdvxcxrgedx
